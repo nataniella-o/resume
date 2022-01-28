@@ -5,6 +5,8 @@
 I am a responsible, personable, and detail-driven 2nd year Computer Science student at the University of Manitoba. I am dedicated to assigned tasks and proficient in Microsoft Word and Excel. I am able to work well
 independently and with others.
 
+</br>
+
 ## **Experience**
 ### **Welcome Mentor (Volunteer)**
 International Center, U of M, Winnipeg, MB
