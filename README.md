@@ -69,7 +69,7 @@ Canadian Independent College, St. Agatha, Ontario
 
 </br>
 
-### **Western African Secondary School Certificate**
+### **West African Secondary School Certificate**
 Trinity International College, Ogun State, Nigeria
 
 *Date: Sept 2013 - July 2019*
